@@ -1,2 +1,1 @@
-# lol
-LOL website LOL
+HELLO! It is the me! Gavin ! Gavin ahluwalia!!! I made a website cuz I wanted to and github was so OP that now i have a website so thak you for visiting my website bye. IIIII AMMMM AAAA PROGRAMER bro why are you still looking I said bye 
